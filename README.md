@@ -1,16 +1,20 @@
 ## Hi there 👋
+- oi me chamo matheus oloiveira
+ 
+- mais meu apelido e carlos ryan
 
-<!--
-**pocohormonio/pocohormonio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- gosto d bts e assisto hentai
 
-Here are some ideas to get you started:
+- e gosto da shopia espanha
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- sou sigma de rubineia, e não gosto de pam pam
+
+- ja fui pro parana, e conheci a mia kalifa
+
+- e sou primo do kid bengala
+
+- e assim sou eu carlos ryan matheus
+
+
+![image](https://github.com/user-attachments/assets/cf2b001c-b346-47de-a800-c97ece4856be)
+
