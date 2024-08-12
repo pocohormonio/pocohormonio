@@ -1,7 +1,7 @@
 Oi bebe 😘
 - oi me chamo matheus oloiveira
  
-- mais meu apelido e carlos ryan
+- mais meu apelido e carlos rian
 
 - gosto d bts e assisto hentai
 
@@ -13,7 +13,7 @@ Oi bebe 😘
 
 - e sou primo do kid bengala
 
-- e assim sou eu carlos ryan matheus
+- e assim sou eu carlos rian matheus
 
 
 ![image](https://github.com/user-attachments/assets/cf2b001c-b346-47de-a800-c97ece4856be)
